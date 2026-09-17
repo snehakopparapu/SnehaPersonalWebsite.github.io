@@ -1,1 +1,0 @@
-# SnehaPersonalWebsite.github.io
